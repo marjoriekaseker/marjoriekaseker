@@ -1,4 +1,4 @@
 - 👋 Hi, I'm Marjorie
-- 👍 I like listen music
-- 🍃 15yo
-- ☀️ here comes the sun.
+- Meu email para contato é marjorie.chemim@escola.pr.gov.pr
+- Estou interessada em aprender a programar novas linguagens 
+- Estou aprendendo programar recentemente a linguagem de JavaScript e Scratch
