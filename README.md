@@ -1,0 +1,4 @@
+- 👋 Hi, I'm Marjorie
+- 👍 I like listen music
+- 🍃 15yo
+- ☀️ here comes the sun.
